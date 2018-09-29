@@ -1,7 +1,9 @@
 # Haun-Collection-Website-Archive
 
 About the Collection
+
 The Haun Family Papers, 1841 – 1931
+
 Preferred Citation:
 Haun Collection, Plumas County Museum, Quincy, CA
 
